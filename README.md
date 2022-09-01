@@ -1,1 +1,1 @@
-# Click: [zwhgithub.io](https://zwhgithub.io/)
+# Click: [zwhgithub.io](https://akko-ka.github.io/zwhgithub.io/index .html)
